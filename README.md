@@ -1,6 +1,6 @@
 - 👋 Hi, I’m hackerzxsaqwedcvr*)bh$3
 - 👀 I’m interested in coding.
-- 🌱 I’m currently pursuing Btech .
+- 🌱 I’m currently pursuing Bca .
 - 💞️ I’m looking to collaborate on making new projects.
 - 📫 my linked profile name islkaxc,mz,.df s.
 
