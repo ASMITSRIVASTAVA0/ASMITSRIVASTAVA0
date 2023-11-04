@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @ASMITSRIVASTAVA0.
+- 👋 Hi, I’m hackerzxsaqwedcvr*)bh$3
 - 👀 I’m interested in coding.
-- 🌱 I’m currently pursuing Btech-cse-ai from PSIT.
+- 🌱 I’m currently pursuing Btech .
 - 💞️ I’m looking to collaborate on making new projects.
-- 📫 my linked profile name is ASMIT SRIVASTAVA.
+- 📫 my linked profile name islkaxc,mz,.df s.
 
 <!---
 ASMITSRIVASTAVA0/ASMITSRIVASTAVA0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
